@@ -28,9 +28,7 @@ Tớ hiện tại đang học ở trường **THPT🎒** và tớ đang làm vi�
 
 **Liên hệ với tớ**
 
-- 💻Faceebok : **[Trần Đức Duy](https://www.facebook.com/HoaiBao.IN4)**
+- 💻Faceebok : **[Hồ Thanh Hoài Bảo](https://www.facebook.com/HoaiBao.IN4)**
 - 💻Gmail : **[hothanhhoaibao.me](https://gmail.com)**
 - 💻Github : **[HoaiBaoNe](https://github.com/HoaiBaoNe)**
 - 💻Zalo : **[0398443304](https://zalo.me/pc)**
-
-//trộm của duyvuong ._.
