@@ -11,11 +11,10 @@ Tớ hiện tại đang học ở trường **THPT🎒** và tớ đang làm vi�
 **Giới thiệu về tớ**
 
 - 👤 Tớ tên là **Hồ Thanh Hoài Bảo**
-- 🎒 Hiện tại tớ vẫn là một học sinh **THPT**
 - 💮 Sinh vào : **30/11/2004**
 - 🌟 Chiều cao : **1m6x(2020)**
 - 💐 Tính cách : hơi **trầm lặng**, **nhạt nhẽo**, đôi lúc cũng hay **giỡn đùa** cùng các bạn trong nhóm
-- 🌙 Tớ hiện tại đang sinh sống tại **An Khê** và có hứng thú với bot message [MiraiPr0ject](https://github.com/miraiPr0ject/miraiv2) - [KB2ABOT](https://github.com/kb2ateam/kb2abot) - [C3CBOT](https://github.com/c3cbot/c3c-0x)
+- 🌙 Tớ hiện tại đang sinh sống tại **An Khê**
 
 **Các sở thích của tớ**
 
